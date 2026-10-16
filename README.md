@@ -1,4 +1,4 @@
-# 🛤️ Road to Godhood (成神之路)
+# 🛤️ Road to Godhood 
 
 > 目标明确，步步为营。流水不争先，争的是滔滔不绝。
 
